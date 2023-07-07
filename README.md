@@ -12,4 +12,4 @@ anggota :
 2. I Gusti Ngura Satya Wikananda ( 21101007)
 3. I Gede Agus Pramana Satria Weweka ( 21101068)
 4. Yulius Frans Ngguli Hunga ( 21101036)
-5. I Gusti Ngurah Agung Tridana J (-)
+5. I Gusti Ngurah Agung Tridana J (20103169)
